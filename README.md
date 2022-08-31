@@ -8,7 +8,7 @@ I'm am always picking up new skills and interests, which means many a wikipedia 
 
 You might catch me riding my bike around the streets of New York, but a surefire way to get a hold of me is to drop a line.
 
-Email: [evanbarden at gmail] (mailto:evanbarden@gmail.com)
+Email: [evanbarden at gmail](mailto:evanbarden@gmail.com)
 
 LinkedIn: [linkedin.com/in/evanfordebarden](https://www.linkedin.com/in/evanfordebarden/)
 
