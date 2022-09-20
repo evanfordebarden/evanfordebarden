@@ -4,7 +4,7 @@ My first job out of college was in tech and I've recently found my way back home
 
 Along the way, I've spent years writing and acting on the comedy stages of NYC.
 
-I'm am always picking up new skills and interests, which means many a wikipedia wormhole or stackoverflow deep dive.
+I am always picking up new skills and interests, which means many a wikipedia wormhole or stackoverflow deep dive.
 
 You might catch me riding my bike around the streets of New York, but a surefire way to get a hold of me is to drop a line.
 
